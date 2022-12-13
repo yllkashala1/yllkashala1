@@ -1,4 +1,4 @@
-👋 Hi, I’m Yllka
+HI, I'M YLLKA
 
 🚀 Recently graduated from Le Wagon
 
