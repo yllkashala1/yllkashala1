@@ -8,6 +8,6 @@
 
 💎 I'm also interested in UX/UI and I value good design
 
-📫 Write me at shala.yllkaa@gmail.com
+
 
 
